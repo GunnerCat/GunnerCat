@@ -1,7 +1,9 @@
 # Hi fellows 🤔
-⚡It my internet persona, GunnerCat.⚡
+⚡Its my internet persona, GunnerCat.⚡
 
 ill put most of my project here, but im welcoming yall to be my friend
+
+🗿 if you need anything, please contact me on @gunnercat#6667 🗿
 
 
 <!--
