@@ -1,4 +1,9 @@
-### Hi there 👋
+# Hi fellows 🤔
+⚡It my internet persona, GunnerCat.⚡
+
+ill put most of my project here, but im welcoming yall to be my friend
+
+Here are some ideas to get you started:
 
 <!--
 **GunnerCat/GunnerCat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
